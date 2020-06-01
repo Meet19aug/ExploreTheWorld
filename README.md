@@ -1,2 +1,2 @@
-# ExploreTheWorld.github.io
+# exploretheworld.github.io
 Inspiring To Travel And Help To Provide Best Destination
